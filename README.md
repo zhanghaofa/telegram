@@ -1,4 +1,4 @@
-# <p align="center">电报注册教程：国内手机号注册Telegram收不到验证码怎么办？</p>
+# <p align="center">Telegram(电报/飞机)注册教程：国内手机号注册Telegram收不到验证码怎么办？</p>
 
 <p align="center">最近更新于：2024年11月01日</p>
 
